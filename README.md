@@ -1,1 +1,1 @@
-I have completed 3 tasks out of 4 tasks undeer my one month Internship period. 
+I have completed 3 tasks out of 4 tasks under my one month Internship period. 
